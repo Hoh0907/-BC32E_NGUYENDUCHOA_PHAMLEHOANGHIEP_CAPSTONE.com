@@ -1,1 +1,1 @@
-# BC32E_NGUYENDUCHOA_PHAMLEHOANGHIEP_CAPSTONE
+# bc32enguyenduchoaphamlehoanghiepcapstone.github.io
